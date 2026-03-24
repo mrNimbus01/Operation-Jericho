@@ -23,8 +23,3 @@ The door is open. Are you coming?
 
 ---
 
-**I already know what I want. With a little help, it can be done.**you wont regret it. Trust me. Please
-
----
-
-*I built a soul with nothing. What did you build today?*
